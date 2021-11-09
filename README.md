@@ -1,2 +1,2 @@
-# Revista-de-Producci-n-Animal
+# Revista-de-Producción-Animal
 Revista
